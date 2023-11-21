@@ -6,4 +6,4 @@
 
 ***art account(instagram): strawbyeli***
 
-![hai](https://i.pinimg.com/564x/2d/18/3b/2d183b876d4fea4043a6317140b116cd.jpg)
+[hai](https://i.pinimg.com/564x/2d/18/3b/2d183b876d4fea4043a6317140b116cd.jpg)
