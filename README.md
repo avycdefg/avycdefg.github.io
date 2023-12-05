@@ -7,7 +7,7 @@
 
 Haikyu!! (ハイキュー!!, Haikyū!!, from the kanji 排球 "volleyball") is a Japanese manga series written and illustrated by Haruichi Furudate. It was serialized in Shueisha's shōnen manga magazine Weekly Shōnen Jump from February 2012 to July 2020, with its chapters collected in 45 tankōbon volumes. The story follows Shoyo Hinata, a boy determined to become a great volleyball player despite his small stature.
 
-![Haikyuu](https://static.wikia.nocookie.net/haikyuu/images/6/66/Chapter364.jpg/revision/latest/scale-to-width-down/400?cb=2019090916102)
+![Haikyuu](https://pbs.twimg.com/media/EgEpvz4UwAAR6Pp.jpg)
 
 
 Shōyō Hinata, after seeing a volleyball match, aims to become the next "Little Giant" and thus joins his middle school volleyball club. After finding new members, he sets out for the middle school tournament, where he crosses paths with a formidable school with the "King of the Upper Court," Tobio Kageyama. Although his team lost, Hinata is still determined to aim for the top and exact revenge on Kageyama. Upon entering high school, he receives the biggest surprise: He and Kageyama are in the same high school volleyball club!
