@@ -37,31 +37,33 @@ Both Hinata and Kageyama aspire to be professional volleyball players, and make 
 
 ***Release Date***
 
-> Haikyū!! the Movie: The Battle at the Garbage Dump will release in Japan on February 16, 2024. A western release date hasn’t yet been revealed, though looking at previous big names from the world of anime – such as The Boy and the Heron, Demon Slayer: Mugen Train, and The First Slam Dunk – does suggest that other markets and regions will have to wait around six-to-eight months for it to hit their shores.
+Haikyū!! the Movie: The Battle at the Garbage Dump will release in Japan on February 16, 2024. A western release date hasn’t yet been revealed, though looking at previous big names from the world of anime – such as The Boy and the Heron, Demon Slayer: Mugen Train, and The First Slam Dunk – does suggest that other markets and regions will have to wait around six-to-eight months for it to hit their shores.
 
-> There is also a second movie planned which will bring the story to a close. At this rate, anything before 2025 would be a pipe dream. Production I.G. remain on animating duties, while Susumu Mitsunaka will direct.
+There is also a second movie planned which will bring the story to a close. At this rate, anything before 2025 would be a pipe dream. Production I.G. remain on animating duties, while Susumu Mitsunaka will direct.
 
 ***Manga chapters that will be adapted***
 
-> Haikyu the Movie continues where the fourth season left off. Karasuno has progressed to the third round of the Nationals, besting Tsubakihara in the first round before sneaking past the uber-tough Inarizaki High School and their talismans, the Miya Brothers.
+Haikyu the Movie continues where the fourth season left off. Karasuno has progressed to the third round of the Nationals, besting Tsubakihara in the first round before sneaking past the uber-tough Inarizaki High School and their talismans, the Miya Brothers.
 
-> Next up? Nekoma, the high school that has battled it out with Karasuno during their glory years. On top of that, there’s also a friend rivalry brewing between Hinata and the timid setter Kenma.
+Next up? Nekoma, the high school that has battled it out with Karasuno during their glory years. On top of that, there’s also a friend rivalry brewing between Hinata and the timid setter Kenma.
 
-> In terms of the source material, Haikyu: the Movie: Battle at the Garbage Dump will start from chapter 291 of the manga and should go up to chapter 325, give or take a few chapters. That does mean, then, that either a large chunk of the Nationals arc (up to chapter 369) or the Final Arc (chapters 370-402) would be cut out in the second movie. In our opinion, the National Arc wrap-up will likely serve – pun intended – as the series finale for the show, with remnants of the Final Arc scattered in.
+In terms of the source material, Haikyu: the Movie: Battle at the Garbage Dump will start from chapter 291 of the manga and should go up to chapter 325, give or take a few chapters. That does mean, then, that either a large chunk of the Nationals arc (up to chapter 369) or the Final Arc (chapters 370-402) would be cut out in the second movie. In our opinion, the National Arc wrap-up will likely serve – pun intended – as the series finale for the show, with remnants of the Final Arc scattered in.
 
-> For a recap on Nekoma’s journey to their showdown with Karasuno, be sure to check out the season 4 episodes “Vivid” and “Cats vs. Monkeys.” To familiarize yourself with their team, the OVAs The Path of the Ball and Land vs. Air are must-watch specials.
+For a recap on Nekoma’s journey to their showdown with Karasuno, be sure to check out the season 4 episodes “Vivid” and “Cats vs. Monkeys.” To familiarize yourself with their team, the OVAs The Path of the Ball and Land vs. Air are must-watch specials.
 
 ***Movie Cast***
 
-> The main cast are all likely to return for Haikyu the Movie. That includes the ultimate underdog Hinata (Ayumu Marase), setter Kageyama (Kaito Ishikawa), and Daichi (Satoshi Hino). Libero Nishinoya (Nobuhiko Okamoto) will bring the thunder once more as, too, will hot-headed Tanaka (Yu Hayashi).
+The main cast are all likely to return for Haikyu the Movie. That includes the ultimate underdog Hinata (Ayumu Marase), setter Kageyama (Kaito Ishikawa), and Daichi (Satoshi Hino). Libero Nishinoya (Nobuhiko Okamoto) will bring the thunder once more as, too, will hot-headed Tanaka (Yu Hayashi).
 
-> Joining them is Tsukushima (Koki Uchiyama), Sugawara (Miyu Irino), Asahi (Yoshimasa Hosoya), and Yamaguchi (Soma Saito), among others. Watching on from the wings are Hitoka Yachi (Sumire Morohoshi) and Kiyoko Shimizu (Kaori Nazuka).
+Joining them is Tsukushima (Koki Uchiyama), Sugawara (Miyu Irino), Asahi (Yoshimasa Hosoya), and Yamaguchi (Soma Saito), among others. Watching on from the wings are Hitoka Yachi (Sumire Morohoshi) and Kiyoko Shimizu (Kaori Nazuka).
 
-> On the Nekoma side, we’ll hear plenty more from the likes of Kenma (Yuki Kaji), Tetsuro Kuroo (Yuichi Nakamura), and Lev (Mark Ishii).
+On the Nekoma side, we’ll hear plenty more from the likes of Kenma (Yuki Kaji), Tetsuro Kuroo (Yuichi Nakamura), and Lev (Mark Ishii).
 
 ---
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/VKviyEGvb94?si=YiGvoRqe_h0wNSPC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
 
 
 ### tobe fly!! :D
