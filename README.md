@@ -1,10 +1,11 @@
 ### avycdefg.github.io
 *Avril Anne M. Gomez*  |  *9-Chabanel*
+
 **Ateneo de Naga University Junior High School**
 
 ---
 
-# Haikyū!!  (Japanese: ハイキュー!!)
+** # Haikyū!!  (Japanese: ハイキュー!!) **
 
 ![Haikyuu Volume 1]((https://static.wikia.nocookie.net/haikyuu/images/0/0e/Volume_1.png/revision/latest?cb=20151001221745))
 
