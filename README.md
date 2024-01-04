@@ -35,6 +35,7 @@ Both Hinata and Kageyama aspire to be professional volleyball players, and make 
 
 ### 1st Movie: Haikyū!! the Movie: The Battle at the Garbage Dump
 
+
 ***Release Date***
 
 Haikyū!! the Movie: The Battle at the Garbage Dump will release in Japan on February 16, 2024. A western release date hasn’t yet been revealed, though looking at previous big names from the world of anime – such as The Boy and the Heron, Demon Slayer: Mugen Train, and The First Slam Dunk – does suggest that other markets and regions will have to wait around six-to-eight months for it to hit their shores.
